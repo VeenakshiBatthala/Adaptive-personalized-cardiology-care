@@ -1,4 +1,8 @@
 # Adaptive-personalized-cardiology-care
 
-Uploading WhatsApp Video 2025-11-09 at 10.43.19_42aeb36b.mp4…
+https://github.com/user-attachments/assets/8fa57e66-8441-41ca-aa06-347c84533071
+
+
+
+
 
